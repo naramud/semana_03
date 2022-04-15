@@ -1,0 +1,1 @@
+gostei da aula muito muito, aprendi bastante e se tiver algo errado lembre-se que erra é humano hahaha. :)
